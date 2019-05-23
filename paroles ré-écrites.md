@@ -2,6 +2,7 @@
 
 ## We are the Champions
 
+```
 J'ai fait mon taf
 Jour après jour
 J'ai découché
@@ -17,6 +18,7 @@ Tati est comblée
 C'est l'heure du troisème bébé
 Pas l'temps d'se r'poser
 Mon mat'las est connecté, c'est le pied !
+```
 
 1:10
 
