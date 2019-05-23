@@ -2,6 +2,7 @@
 
 ## We are the Champions
 
+
 I've paid my dues
 Time after time
 I've done my sentence
@@ -22,6 +23,8 @@ No time for losers
 
 ## Don't stop me now
 
+
+
 Tonight, I'm gonna have myself a real good time
 I feel alive and the world I'll turn it inside out, yeah
 And floating around in ecstasy
@@ -31,6 +34,8 @@ So don't stop me now don't stop me
 1:10 + 0:35 = 1:45
 
 # We will rock you
+
+
 
 Buddy, you're a boy, make a big noise
 Playing in the street, gonna be a big man someday

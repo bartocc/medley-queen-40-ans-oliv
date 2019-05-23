@@ -25,11 +25,11 @@ Mon mat'las est connecté, c'est le pied !
 ## Don't stop me now
 
 ```
-Ce soir, on t'a préparé une super soirée
+Ce soir, on t'a préparé la grand' soirée
 Tu vas te sentir tout chamboulé, et St-Léger va être toute retournée
 On va s'envoler, c'est l'amitié
 Alors ne t'arrêtes pas, ne t'arrêtes ...
-On va tous se régaler, on va tous s'éclater
+On va tous se régaler, on va s'éclater
 ```
 
 1:10 + 0:35 = 1:45
@@ -48,7 +48,7 @@ On va te faire, te faire, tripper
 Oliv', la pétanque, et le molkky
 C'est pas vraiment mieux, Harry t'met souvent la raclée
 On te l'as déjà dit, trop compliqué
-Mets-toi au barbeuc', les saucisses sont grillées
+Reste au barbeuc', tes saucisses font rêver
 
 On va te faire, te faire, danser, CHANTEZ !
 On va te faire, te faire, tripper
