@@ -7,10 +7,10 @@ J'ai fait mon taf
 Jour après jour
 J'ai découché
 Mais c'était obligé
-Et les conneries
-J'ai laissé tomber
-C'était pas facile, on m'en a fait baver
-Mais j'y suis arrivé
+Et les cuisines
+Les barettes les d'jeans
+C'était pas facile, je me suis accroché
+Et j'ai tout déchiré !
 
 Je bosse chez un super litier
 J'ai même le droit d'les essayer
@@ -55,8 +55,8 @@ On va te faire, te faire, tripper
 
 Oliv', t'as 40 ans, maint'nant
 Plus la peine de faire, comme si t'étais un jeune premier
-Mais t'as tous tes amis, pour t'épauler
-C'est pour la vie, on t'laissera jamais tomber
+Mais t'as tous tes amis, c'est pour la vie
+Pour déconner on t'laissera jamais tomber !
 
 On va te faire, te faire, danser, CHANTEZ ! huhum
 On va te faire, te faire, tripper, (guitare starts), Allez tou'l monde
