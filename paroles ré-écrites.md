@@ -24,16 +24,19 @@ Mon mat'las est connecté, c'est le pied !
 
 ## Don't stop me now
 
+```
 Ce soir, on t'a préparé une super soirée
 Tu vas te sentir tout chamboulé, et St-Léger va être toute retournée
 On va s'envoler, c'est l'amitié
 Alors ne t'arrêtes pas, ne t'arrêtes ...
 On va tous se régaler, on va tous s'éclater
+```
 
 1:10 + 0:35 = 1:45
 
 # We will rock you
 
+```
 Oliv', t'es un bon gars, sympa
 Tu fais du tennis, mais la gloire tu peux oublier
 Tu s'ras jamais 4-6, trop compliqué
@@ -60,5 +63,6 @@ On va te faire, te faire, tripper, (guitare starts), Allez tou'l monde
 On va te faire, te faire, danser, huhum
 On va te faire, te faire, tripper
 Alright
+```
 
 1:10 + 0:35 + 1:30 = 3:15
