@@ -48,7 +48,7 @@ On va te faire, te faire, tripper
 Oliv', la pétanque, et le molkky
 C'est pas vraiment mieux, Harry t'met souvent la raclée
 On te l'as déjà dit, trop compliqué
-Mets-toi au barbeuc' les saucisses sont grillées
+Mets-toi au barbeuc', les saucisses sont grillées
 
 On va te faire, te faire, danser, CHANTEZ !
 On va te faire, te faire, tripper
